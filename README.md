@@ -1,1 +1,1 @@
-This is the first group project worked on by i and samuel
+This is the first group project worked upon by i and samuel
