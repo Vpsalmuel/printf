@@ -1,1 +1,1 @@
-This is the first group project done by i and samuel
+This is the first group project done by samuel Daniel and Oyeyipo olaoluwa ebenezer
